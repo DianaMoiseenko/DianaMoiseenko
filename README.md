@@ -36,13 +36,17 @@
        Регіональний аналіз: Визначити географічні області або країни з найвищим рівнем інтересу до української кухні. </p>
 </section>
        
-![image](https://github.com/DianaMoiseenko/DianaMoiseenko/assets/153625976/2ace8044-d11a-4055-be9a-16d739085c76)
+![image_2024-01-23_16-06-52](https://github.com/DianaMoiseenko/DianaMoiseenko/assets/153625976/2167d211-768c-467a-a34e-8b83058f60db)
+
 </section>
 
-![image](https://github.com/DianaMoiseenko/DianaMoiseenko/assets/153625976/985af14a-ebd4-4690-bb9c-667801bd380d)
+![image_2024-01-23_16-11-11](https://github.com/DianaMoiseenko/DianaMoiseenko/assets/153625976/4d836fed-7b36-4efd-b3da-b099845752cd)
+
 </section>
 
-![image](https://github.com/DianaMoiseenko/DianaMoiseenko/assets/153625976/1440aa7a-c668-4268-987f-0a3c90f8851c)
+![image_2024-01-23_16-12-30](https://github.com/DianaMoiseenko/DianaMoiseenko/assets/153625976/6bcb2746-ab43-4dc3-8037-02af1801cdfb)
+
+
 </section>
 
 ---
